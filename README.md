@@ -1,2 +1,0 @@
-# Malam-Sama-Opah
-Idk
